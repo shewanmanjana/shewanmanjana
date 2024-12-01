@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **manjanafernando2gmail.com**
 
-- 📄 Know about my experiences [3 Month](3 Month)
+- 📄 Know about my experiences 3 Month
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
