@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **Dark Cyber Matrix**
 
-- 📫 How to reach me **manjanafernando2gmail.com**
+- 📫 How to reach me **manjanafernandogmail.com**
 
 - 📄 Know about my experiences 3 Month
 
